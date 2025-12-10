@@ -2,7 +2,7 @@
 
 
 ### Estudiante de la Carrera de Ingienería de Sistemas
-Tengo 18 años, acabo de comenzar la Universidad, egresé del colegio Maria Laura Justiniano 2, estuve toda secundaria en ese colegio pero antes de cambiarme estudié en la Unidad Educativa Castelfort Castellanos todo primaria. El cuál obtuve premios y participé en la secundaria como ser: 
+Tengo 21 años, acabo de comenzar la Universidad, egresé del colegio Maria Laura Justiniano 2, estuve toda secundaria en ese colegio pero antes de cambiarme estudié en la Unidad Educativa Castelfort Castellanos todo primaria. El cuál obtuve premios y participé en la secundaria como ser: 
 #### Premios
 - 1 er lugar en los juegos Marialaureños en el deporte de Voleyball (2018)
 - 1 er lugar en el deporte de Basquetball en los juegos Marialaureños (2019)
